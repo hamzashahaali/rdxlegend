@@ -1,0 +1,2 @@
+# rdxlegend
+Crypto gamer
